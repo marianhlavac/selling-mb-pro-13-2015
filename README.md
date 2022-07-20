@@ -85,4 +85,4 @@ Pouze osobní předání v Praze, je silně nepravděpodobné že bych to někam
 Snažil jsem se to vyfotit a popsat co nejdetailněji to šlo, proto nebudu úplně šťastný pokud se na to budete "jen chtít podívat", budu preferovat vážné zájemce.
 
 +420 605 347 542  
-[mbpro@marianhlavac.cz](mailto:mbpro@marianhlavac.cz)
+[m@marianhlavac.cz](mailto:m@marianhlavac.cz)
