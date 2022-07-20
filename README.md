@@ -51,6 +51,7 @@ Jelikož jsem switchnul na M1, leží mi tady doma nevyužitý můj původní pr
 - vizuálně **skvělý** stav
 - baterie **751 cyklů**
   - nafouklá a potřebuje vyměnit
+  - je stále použitelná, zvládne 4+ hodin používání
 - displej **2018**
   - minimální známky používání
 
@@ -58,7 +59,7 @@ Zakoupen v roce 2016, používán denně, nošený vždy v obalu, dobře opečov
 
 Vzhledem k tomu kolik jsem viděl cizích Macbooků po 5+ letech používání, a viděl jsem ostatní inzeráty 2015 Macbooků který vypadaj jako by je přejelo auto, tak vizuálně se neostýchám to označit za **skvělý stav**. Je stále reprezentativní a vypadá dobře. Pár malinkých šťouchanců má, vše je vyfocené. Ošoupaný jsou pouze nožičky zespod.
 
-Hardware je bez vad až na baterii, ta se bohužel stihla nafouknout a bude potřebovat vyměnit. Tenhle fakt je promítnutý do ceny, viz poznámka níže.
+Hardware je bez vad až na baterii, ta se bohužel stihla nafouknout a bude potřebovat vyměnit. Tenhle fakt je promítnutý do ceny, viz poznámka níže. Je nicméně stále funkční a dá v pohodě odhadem 4+ hodin běžného používání (vsadím se že i víc), pokud je někdo kaskadér tak to nemusí řešit a vyměnit ji až definitivně chcípne.
 
 Na SSD je nainstalovaný macOS Big Sur, ale Monterey je pro Early 2015 stále dostupný, stačí updatnout.
 
