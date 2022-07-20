@@ -72,7 +72,7 @@ Ale třeba taková práce s kancelářským software, méně náročný vývoj, 
 
 **7900 Kč**
 
-Pro 1TB disk mám využití, takže cena je s 128GB originálním diskem. Stál 3k, za 1900 Kč k ceně ho tam nechám.
+Pro 1TB disk mám využití, takže cena je s 128GB originálním diskem. Stál 3k, za 1900 Kč k ceně ho tam nechám, je nový, koupený letos.
 
 Ta klávesnice a trackpad je tam víceméně gratis. Pokud víte, že ji nevyužijete nebo nechcete tak vám je cpát nebudu, ale s cenou to tolik nepohne.
 
