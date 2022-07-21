@@ -1,5 +1,7 @@
 # Macbook Pro, Retina 13-inch, Early 2015
 
+> 🔥 Již rezervovaný na 21.7. 14:00
+
 Jelikož jsem switchnul na M1, leží mi tady doma nevyužitý můj původní pracant MB Pro 2015 s 2.7 GHz Intel i5, 8GB RAM a 128 GB nebo 1 TB SSD, který prodávám i s bezdrátovou klávesnicí, trackpadem a párem užitečných dongles.
 
 <img src="photos/DSC_0168.jpg" width="100%">
