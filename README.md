@@ -1,6 +1,6 @@
 # Macbook Pro, Retina 13-inch, Early 2015
 
-> 🔥 Již rezervovaný na 21.7. 14:00
+> 👋  **[Už je fuč!](https://twitter.com/benesmil/status/1550100607947735041)**
 
 Jelikož jsem switchnul na M1, leží mi tady doma nevyužitý můj původní pracant MB Pro 2015 s 2.7 GHz Intel i5, 8GB RAM a 128 GB nebo 1 TB SSD, který prodávám i s bezdrátovou klávesnicí, trackpadem a párem užitečných dongles.
 
